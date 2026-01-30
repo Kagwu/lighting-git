@@ -1,5 +1,5 @@
-## Never give Up on JAH!
+##  JAH is Great!
 
-- This is from cali-spo
+- This is from Takum tara
 - am rolling forward from 
-'development-branch'
+- 'development-branch'
