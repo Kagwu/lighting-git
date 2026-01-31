@@ -1,5 +1,5 @@
-##  JAH is Great!
+##  JAH RASTAFARI!!
 
-- This is from Takum tara
+- We are matching to victory
 - am rolling forward from 
-- 'development-branch'
+- 'takum-tara is the new movement'
