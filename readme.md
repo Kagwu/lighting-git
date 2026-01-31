@@ -1,5 +1,5 @@
-##  Na watin the happen?
+##  JAH RASTAFARI!!
 
-- Na for naija way we dey o!!
+- We are matching to victory
 - am rolling forward from 
-- 'Cali-spo is the new movement
+- 'takum-tara is the new movement'
