@@ -1,3 +1,5 @@
-## More Blessing!
+##  Na watin the happen?
+
+- Na for naija way we dey o!!
 - am rolling forward from 
-'development-branch'
+- 'Cali-spo is the new movement
